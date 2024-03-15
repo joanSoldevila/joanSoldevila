@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning him
 - 💞️ I’m looking to collaborate on being him
 - 📫 How to reach me don't worry, i am him
-- 😄 Pronouns: Nick/her/him
-- ⚡ Fun fact: i'm him
+- 😄 Pronouns: she/they
+- ⚡ Fun fact: would you rather watch a tree grow or a knee grow.
 
 <!---
 joanSoldevila/joanSoldevila is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
